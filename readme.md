@@ -13,7 +13,7 @@
 - 1/2 xícara de óleo
 - 1 colher de chá de extrato de baunilha
 
-### Cobertura
+### Cobertura de chocolate
 - 1 xícara de açúcar
 - 1/2 xícara de manteiga
 - 2/3 xícara de leite
