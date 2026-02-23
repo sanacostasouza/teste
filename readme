@@ -29,6 +29,9 @@
 6. Asse por 30-35 minutos
 7. Prepare a cobertura e despeje sobre o bolo ainda quente
 
+
+8.Vamos montar agora a receita de pizza - Rainer
+
 ## Tempo de Preparo
 - ⏱️ Preparo: 15 minutos
 - 🔥 Ao forno: 35 minutos
@@ -38,5 +41,9 @@
 6-8 porções
 
 ---
+
+
+
+
 
 **Bom apetite!** 😋
